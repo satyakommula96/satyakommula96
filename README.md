@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @satyakommula96
 
-- 📫 How to reach me (www.satyakommula.com)
+- 📫 How to reach me (https://satyakommula.com)
 
 ## Stats
 
